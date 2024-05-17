@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Shibil7867
 - 👀 I’m interested in electronics and embedded systems
 - 🌱 I’m currently learning ai and neural networks
-- 📫 How to reach me: Shibil Irfaan I
+- 📫 How to reach me: shibilofficial719145@gmail.com
 
 
 <!---
